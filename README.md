@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @adziok
+- 👀 I’m interested in PR0GRAM1NG
+- 🌱 I’m currently learning 
+- 💞️ I’m looking to collaborate on 
+- 📫 How to reach me 
